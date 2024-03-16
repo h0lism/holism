@@ -1,0 +1,1 @@
+This is a summary of the years I spent traveling across the world arm wrestling the strongest handicapped individuals I was able to find. 
